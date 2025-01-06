@@ -8,3 +8,4 @@
 * masih melkukan kegiatan yg sampai
 * masih banyak hal yang belum aku lakukan
 * masih banyak hal yang belum aku ketahui
+* masih banyak hal yang belum aku rasakan
