@@ -5,3 +5,4 @@
 5/1/2025
 * interaksi dengan tetangga, serta menyapa banyak orang
 * besok aku tidak tahu apa yg akan kulakukan
+* masih melkukan kegiatan yg sampai
