@@ -6,3 +6,5 @@
 * interaksi dengan tetangga, serta menyapa banyak orang
 * besok aku tidak tahu apa yg akan kulakukan
 * masih melkukan kegiatan yg sampai
+* masih banyak hal yang belum aku lakukan
+* masih banyak hal yang belum aku ketahui
