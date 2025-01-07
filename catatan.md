@@ -15,4 +15,4 @@
 * aku masih belum menyelesaikan semua ijazah-ijazah sekolah
 * recana malam ini keluar silahturahmi lagi
 * sebenarnya lebih nyaman dimakassar juju saja
-
+* dimakassar kita bisa menjadi diri sendiri yg apa adanya
