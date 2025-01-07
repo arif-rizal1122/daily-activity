@@ -9,3 +9,7 @@
 * masih banyak hal yang belum aku lakukan
 * masih banyak hal yang belum aku ketahui
 * masih banyak hal yang belum aku rasakan
+
+6/1/2025
+* hari ini sibuk sekali mengurus ijazah-ijazah sekolah
+
