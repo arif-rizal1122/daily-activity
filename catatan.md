@@ -16,3 +16,4 @@
 * recana malam ini keluar silahturahmi lagi
 * sebenarnya lebih nyaman dimakassar juju saja
 * dimakassar kita bisa menjadi diri sendiri yg apa adanya
+* disini saya tidak bisa terlalu fokus untuk belajar 
