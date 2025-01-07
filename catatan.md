@@ -14,5 +14,5 @@
 * hari ini sibuk sekali mengurus ijazah-ijazah sekolah
 * aku masih belum menyelesaikan semua ijazah-ijazah sekolah
 * recana malam ini keluar silahturahmi lagi
-
+* sebenarnya lebih nyaman dimakassar juju saja
 
