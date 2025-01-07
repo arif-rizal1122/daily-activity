@@ -12,4 +12,7 @@
 
 6/1/2025
 * hari ini sibuk sekali mengurus ijazah-ijazah sekolah
+* aku masih belum menyelesaikan semua ijazah-ijazah sekolah
+* recana malam ini keluar silahturahmi lagi
+
 
