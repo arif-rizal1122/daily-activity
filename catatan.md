@@ -22,3 +22,4 @@
 * hari saya pergi kekota bima
 * disana saya singgah di 4 institusi
 * ada kejadian lucu disana, dimana seorang polisi melakukan pugli
+* disana, dikota bima. saya menghabiskan banyak uang, uang makan, uang transport dll
