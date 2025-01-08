@@ -20,3 +20,4 @@
 
 7/1/2025
 * hari saya pergi kekota bima
+* disana saya singgah di 4 institusi
