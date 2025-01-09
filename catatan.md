@@ -30,3 +30,4 @@
  * saya tadi pergi cuci foto di sape
  * yg sudah saya selesaikan adalah urusan di mts
  * tadi sempat untuk menyelesaikan urusan ijazah di sd dan sma, tapi sempat di diselesaikan
+ * saya pikir akan bisa bertahan untuk sampai 2 bulan. tapi saya rasa tidak bisa, mngkin cukup satu bulan aja lah.
