@@ -24,3 +24,6 @@
 * ada kejadian lucu disana, dimana seorang polisi melakukan pugli
 * disana, dikota bima. saya menghabiskan banyak uang, uang makan, uang transport dll
 * sehabis pulang saya rasa capek sekali
+
+8/1/2025
+ * hari ini saya menghabiskan waktu untuk mengurus ijazah-ijazah sekolah
