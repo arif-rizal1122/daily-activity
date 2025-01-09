@@ -28,3 +28,4 @@
 8/1/2025
  * hari ini saya menghabiskan waktu untuk mengurus ijazah-ijazah sekolah
  * saya tadi pergi cuci foto di sape
+ * yg sudah saya selesaikan adalah urusan di mts
