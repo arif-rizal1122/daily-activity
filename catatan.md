@@ -29,3 +29,4 @@
  * hari ini saya menghabiskan waktu untuk mengurus ijazah-ijazah sekolah
  * saya tadi pergi cuci foto di sape
  * yg sudah saya selesaikan adalah urusan di mts
+ * tadi sempat untuk menyelesaikan urusan ijazah di sd dan sma, tapi sempat di diselesaikan
