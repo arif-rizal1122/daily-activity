@@ -34,3 +34,4 @@
 
  9/1/2025
  * hari ini saya tidak mengurus ijazah
+ * hari ini saya merasakan kebosonan yg luar biasa
