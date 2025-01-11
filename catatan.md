@@ -36,3 +36,4 @@
  * hari ini saya tidak mengurus ijazah
  * hari ini saya merasakan kebosonan yg luar biasa
  * saya membantu orang tua saya disawah
+ * saya ingin sekali bersantai santai lagi dipondok
