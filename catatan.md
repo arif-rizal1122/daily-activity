@@ -37,3 +37,4 @@
  * hari ini saya merasakan kebosonan yg luar biasa
  * saya membantu orang tua saya disawah
  * saya ingin sekali bersantai santai lagi dipondok
+ * ya allah cobaan terbarut adalah nafsu ku sendiri
