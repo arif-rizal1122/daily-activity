@@ -38,3 +38,4 @@
  * saya membantu orang tua saya disawah
  * saya ingin sekali bersantai santai lagi dipondok
  * ya allah cobaan terbarut adalah nafsu ku sendiri
+ * saya harus punya prinsip, ketika saya memulai, maka saya harus tahu kapan berhenti
