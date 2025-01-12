@@ -44,3 +44,4 @@
  * hari ini saya bantu paman untuk panen bawang
  * saya merasa capek sekali
  * saya sekarng merasa flu/gak enak badan
+ * setelah saya selesai memanen bawang saya instirhat tidur
