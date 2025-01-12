@@ -46,3 +46,4 @@
  * saya sekarng merasa flu/gak enak badan
  * setelah saya selesai memanen bawang saya instirhat tidur
  * ya allah capek sekali kurasa
+ * semoga hari esok menanti hal2 baik, aamiin
