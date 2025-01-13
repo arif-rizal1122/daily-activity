@@ -50,3 +50,4 @@
 
  13/1/2025
  * hari ini saya menyelasikan pengurusan ijazah SMA, SD, dan SMP
+ * seperti biasa hari aku kecolongan lagi
