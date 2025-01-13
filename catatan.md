@@ -47,3 +47,6 @@
  * setelah saya selesai memanen bawang saya instirhat tidur
  * ya allah capek sekali kurasa
  * semoga hari esok menanti hal2 baik, aamiin
+
+ 13/1/2025
+ * hari ini saya menyelasikan pengurusan ijazah SMA, SD, dan SMP
