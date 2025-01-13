@@ -53,3 +53,4 @@
  * seperti biasa hari aku kecolongan lagi
  * intinya kegagalan/kesalahan itu bukan akhir dari seglanya
  * bangkit dan menatap kedepan lagi adalah sebuah kunci dan keharusan
+ * ya allah..
