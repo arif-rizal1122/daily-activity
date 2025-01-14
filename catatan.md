@@ -54,3 +54,6 @@
  * intinya kegagalan/kesalahan itu bukan akhir dari seglanya
  * bangkit dan menatap kedepan lagi adalah sebuah kunci dan keharusan
  * ya allah..
+
+ 14/1/2025
+ * hari ini dan hari kemaren tidak jauh berbeda
