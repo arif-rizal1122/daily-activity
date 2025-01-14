@@ -59,3 +59,4 @@
  * hari ini dan hari kemaren tidak jauh berbeda
  * cuman hari ini saya banyak tidur karena.... taulah
  * saya harap hari esok jauh lebih baik dari hari ini
+ * saya besok akan turun kesawah lagi. insya allah
