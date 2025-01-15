@@ -61,3 +61,7 @@
  * saya harap hari esok jauh lebih baik dari hari ini
  * saya besok akan turun kesawah lagi. insya allah
  * kenapa saya hari sesak napas yah
+
+ 15/1/2025
+ * hari ini mirip2 seperti kemaren
+ 
