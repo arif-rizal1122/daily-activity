@@ -69,4 +69,5 @@
  * saya yakin hari esok pasti lebih baik lagi
  * kemungkinan besar turun lagi kesawah
  * cukup males juga keluar rumah gara2 gak ada motor
+ * jalan2 kaki itu agak berat kurasa, terutama disiang harinya
 
