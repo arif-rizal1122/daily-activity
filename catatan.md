@@ -68,4 +68,5 @@
  * yah, hari ini ada baiknya juga sih. kalau dipikir2
  * saya yakin hari esok pasti lebih baik lagi
  * kemungkinan besar turun lagi kesawah
+ * cukup males juga keluar rumah gara2 gak ada motor
 
