@@ -67,4 +67,5 @@
  * saya baring, tidur, makan, sholat dan ...
  * yah, hari ini ada baiknya juga sih. kalau dipikir2
  * saya yakin hari esok pasti lebih baik lagi
+ * kemungkinan besar turun lagi kesawah
 
