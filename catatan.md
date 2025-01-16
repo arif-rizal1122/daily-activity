@@ -75,3 +75,4 @@
  * hari ini saya turun kesawah
  * habis kesawah saya melakukan itu lagi ...
  * kecanduan itu .. emang membuat hidup kita hancur
+ * saya masih yakin kesalahan/masalah itu bukan lah sebuah akhir, artinya masih ada setelah nya, yg butuh diisi dengan apa?
