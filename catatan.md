@@ -77,3 +77,4 @@
  * kecanduan itu .. emang membuat hidup kita hancur
  * saya masih yakin kesalahan/masalah itu bukan lah sebuah akhir, artinya masih ada setelah nya, yg butuh diisi dengan apa?
  * insya allah besok, rencana nya mau ke kekota lagi
+ * semoga perjalan nya aman dan damai
