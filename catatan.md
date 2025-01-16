@@ -71,3 +71,6 @@
  * cukup males juga keluar rumah gara2 gak ada motor
  * jalan2 kaki itu agak berat kurasa, terutama disiang harinya
 
+ 16/1/2025
+ * hari ini saya turun kesawah
+
