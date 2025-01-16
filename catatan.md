@@ -78,3 +78,6 @@
  * saya masih yakin kesalahan/masalah itu bukan lah sebuah akhir, artinya masih ada setelah nya, yg butuh diisi dengan apa?
  * insya allah besok, rencana nya mau ke kekota lagi
  * semoga perjalan nya aman dan damai
+
+
+ ¥ ALHAMDULILLAH SAYA JADI ORANG YG PUNYA GAJI TINGGI, PUNYA MOBIL BAGUS, PUNYA RUMAH YANG NYAMAN, SERTA PUNYA INSTRI YG CANTIK DAN BAIK ¥
