@@ -86,3 +86,4 @@
  * hari ini saya telah menyelesaikan pengurusan ijazah
  * tadi laminating ijazah sd
  * walaupun pas di SMA tadi saya jujur agak emosi dengan para bangsat nya
+ * tugas selanjutnya adalh menanti/mengambil ijazah yg sudah dibuat
