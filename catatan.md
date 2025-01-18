@@ -84,3 +84,4 @@
 
  17/1/2025
  * hari ini saya telah menyelesaikan pengurusan ijazah
+ * tadi laminating ijazah sd
