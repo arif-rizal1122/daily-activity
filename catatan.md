@@ -94,3 +94,4 @@
  18/1/2025
  * hari ini keseharian makan, tidur dll
  * saya nolep hehehe
+ * dan kejadian lagi ...
