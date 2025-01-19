@@ -95,3 +95,5 @@
  * hari ini keseharian makan, tidur dll
  * saya nolep hehehe
  * dan kejadian lagi ...
+ 
+ ¥ ALHAMDULILLAH SAYA JADI ORANG YANG PUNYA GAJI TINGGI, PUNYA MOBIL BAGUS, PUNYA RUMAH YANG NYAMAN, SERTA PUNYA ISTRI YANG CANTIK DAN BAIK ¥
